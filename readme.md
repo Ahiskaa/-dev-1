@@ -1,1 +1,1 @@
-# Html ödevi tamamlanmıştır :d
+# Html assignment completed :d
